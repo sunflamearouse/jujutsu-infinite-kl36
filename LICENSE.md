@@ -1,4 +1,4 @@
-
+Experience survive lava for brainrots like never before with survive lava for brainrots advanced Script, the #1 Script. Includes auto-upgrade and
 
 
 
